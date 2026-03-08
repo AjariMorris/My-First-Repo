@@ -14,4 +14,4 @@ afm75708@email.vccs.edu
 
 
 
-![Steve](https://github.com/user-attachments/assets/b228a4f4-3741-4013-b0de-1be74dc4159a)
+![Sgt Stubby](https://github.com/user-attachments/assets/6733a8e1-2bef-4cc1-b2a5-3774894e28d4)
